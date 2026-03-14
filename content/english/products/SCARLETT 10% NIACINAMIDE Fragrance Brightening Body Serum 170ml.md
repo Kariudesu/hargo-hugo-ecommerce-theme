@@ -1,0 +1,1 @@
+--- title: "SCARLETT 10% NIACINAMIDE Fragrance Brightening Body Serum 170ml" image: "https://down-id.img.susercontent.com/file/id-11134207-8224p-mjzbspte02rm96" price: "39,0RB" buy_link: "https://s.shopee.co.id/5q0uo4lZrQ" --- Daster cantik sutra eksklusif, wajib ada kat dalam almari untuk si dia!
